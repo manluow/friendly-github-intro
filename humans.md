@@ -9,8 +9,8 @@
 
 ### Participants
 
-* 
-* 
+* Man Luo 
+* Beth Nichols
 * 
 * 
 * 
